@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with instant Camtasia for PC | Camtasia for Windows Overlay | audio-sync + LUT-support, the #1 overlay. Includes audio-sync and
 
 
 
